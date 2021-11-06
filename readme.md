@@ -1,1 +1,2 @@
 
+Everyone wants to avoid city crowds by traveling, which is one of the most enjoyable things to do. When comparing the price of an airline ticket today to the previous day, it can be difficult to make an educated judgment. Tourists who wish to visit a new location should be aware of ticket prices in order to obtain the cheapest and most reliable ticket price that meets their requirements. This void inspires the concept of forecasting flight tickets in order to make it easier for tourists to book tickets that meet their needs.
